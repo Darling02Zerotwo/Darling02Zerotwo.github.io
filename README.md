@@ -5,5 +5,5 @@
 # 7723UP搜索：是02吖
 # 百度搜索：CSMoE 终结时代
 # B站搜索：DarlingHy
-#这真的只是我的官方个人网站！！！！！！！！！！！！！
-#下载跳转：https://github.com/Darling02Zerotwo/-02-/projects/1
+#这真的只是我的官方个人网站！！！！！！！！！
+#下载跳转:https://github.com/Darling02Zerotwo/-02-/projects/1
