@@ -11,3 +11,4 @@
 # csoldjb吧：https://tieba.baidu.com/f?kw=csoldjb&fr=ala0&tpl=5&dyTabStr=MCw2LDIsMSw0LDMsNSw3LDgsOQ%3D%3D
 # CSMoE吧：https://tieba.baidu.com/f?kw=csmoe&fr=ala0&tpl=5&dyTabStr=MCw2LDIsMyw0LDEsNSw4LDcsOQ%3D%3D
 # 安卓半条命吧：https://tieba.baidu.com/f?ie=utf-8&kw=%E5%AE%89%E5%8D%93%E5%8D%8A%E6%9D%A1%E5%91%BD&fr=search
+# 群号:792530100
