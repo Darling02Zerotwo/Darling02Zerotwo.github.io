@@ -14,7 +14,7 @@
 # CSMoE吧：https://tieba.baidu.com/f?kw=csmoe&fr=ala0&tpl=5&dyTabStr=MCw2LDIsMyw0LDEsNSw4LDcsOQ%3D%3D
 # 安卓半条命吧：https://tieba.baidu.com/f?ie=utf-8&kw=%E5%AE%89%E5%8D%93%E5%8D%8A%E6%9D%A1%E5%91%BD&fr=search
 # 群号:792530100
-#                                   u@B@.,,:,:,:::.v@@@      iB@@@B@B@8     M@B@B@B@B@U   :@B@B@B@u7B@B@B@B@B@B@@@                                    
+#                                   嘿嘿AwA                                  
                                     jB@BEOMMMMMMMOGO@B@     7B@BG. J@B@@    @BU,  iB@B@u  .B@G.r@@u  ir7.  r@B@  .                                    
                                     L@B@.,::::::,:.7B@@     B@B@    2@B@i   .       B@B@  .@B2  B@u  @B@   .B@B                                       
                                     UB@B7vYLYLYLYLvS@B@    7@B@i     B@@M          .@@@2  .B@k  @BU uB@u   .@B@                                       
