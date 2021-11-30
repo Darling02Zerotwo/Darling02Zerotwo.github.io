@@ -1,23 +1,4 @@
 # 是02吖的官网(⌯︎¤̴̶̷̀ω¤̴̶̷́)✧︎
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 # 欢迎来到B站：是02吖的官网！本02代替小何把他的所有CSMOE整合或者其他的东西发上来
 # 本人主页：https://space.bilibili.com/1575374858?from=search&seid=13727407990868991070&spm_id_from=333.337.0.0
 # 本人QQ：2097972447
@@ -43,8 +24,8 @@
                                     MB@BP   LB@OLJUu2uF1     B@B@@@B@B@    B@B@B@B@B@B@B  ,B@B@B@BMX@B@k   .@B@                                       
                                    @B@B@B@BNM@BN   . ..,r7    :0@@B@X:     qBMOMM@@@B@BF  .@B5   BB@BO     0@@B                                       
                                   @@@B  rM@@@B@B@B@B@B@B@S                                        ZX   i@B@B@BJ                                       
-                                   rP        ....,.,,,,::                                               XP5Fr.                                        
-                                                                                                                                                      
+                                   rP        ....,.,,,,::                                               XP5Fr.   
+# 版本啥的都会在官方群发布，本人负责魔改
                                                                                                                                                       
                                                                                                                                                       
                                                                                                                                                       
